@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AlsoKnownAsAlias, though I also often use the gamertag SkinChanger
+- 👀 I’m interested in game development and computer engineering
+- 📫 How to reach me: Blood Sacrifice
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am in your walls
